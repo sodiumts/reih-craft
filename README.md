@@ -1,2 +1,2 @@
-# rei-craft
+# reih-craft
 POGCHEMP MOD YES
